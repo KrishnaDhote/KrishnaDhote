@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Krishna Dhote
+- 👀 I’m interested in c++,android studio,listening music,watching web series
+- 🌱 I’m currently learning compputer engineering in 2nd year B.Tech
+- 💞️ I’m looking to learn new things from all of you i will be very thankfull for your help
+- 📫 How to reach me dhotekrishna153@gmail.com and @KrishnaDhote at Github
